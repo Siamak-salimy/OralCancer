@@ -82,8 +82,5 @@ The prognosis for oral cancer depends on the stage at diagnosis, the location of
 ### **Conclusion**
 Oral cancer is a serious but preventable and treatable disease. Awareness of risk factors, early detection, and prompt treatment are key to improving outcomes. Regular dental checkups and lifestyle changes can significantly reduce the risk of developing oral cancer.
 
-If you have concerns about oral cancer or notice any symptoms, consult a healthcare professional immediately. Early action can save lives! 😊
+If you have concerns about oral cancer or notice any symptoms, consult a healthcare professional immediately. Early action can save lives! 😊🚀✨
 
----
-
-Let me know if you’d like more detailed information or have specific questions! 🚀✨
