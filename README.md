@@ -1,5 +1,4 @@
 ### **Oral Cancer: An Overview**
-
 Oral cancer, also known as **oral cavity cancer** or **mouth cancer**, is a type of cancer that develops in the tissues of the mouth or throat. It is a serious condition that can affect various parts of the oral cavity, including the lips, tongue, cheeks, floor of the mouth, hard and soft palate, sinuses, and pharynx (throat). Early detection and treatment are crucial for improving outcomes.
 
 ---
