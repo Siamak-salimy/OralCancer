@@ -2,7 +2,6 @@
 Oral cancer, also known as **oral cavity cancer** or **mouth cancer**, is a type of cancer that develops in the tissues of the mouth or throat. It is a serious condition that can affect various parts of the oral cavity, including the lips, tongue, cheeks, floor of the mouth, hard and soft palate, sinuses, and pharynx (throat). Early detection and treatment are crucial for improving outcomes.
 ---
 
-
 ### **Types of Oral Cancer**
 1. **Squamous Cell Carcinoma**: The most common type, accounting for over 90% of oral cancers. It originates in the squamous cells lining the mouth and throat.  
 2. **Verrucous Carcinoma**: A less aggressive form of squamous cell carcinoma, often appearing as a wart-like growth.  
